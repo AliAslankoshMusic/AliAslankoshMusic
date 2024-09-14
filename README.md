@@ -1,0 +1,6 @@
+سلام من علی اصلانکش هستم ( Hello, my name is Ali Aslankesh) 
+من از رو علاقه و شرایط هایی وارد دنیای موزیک شدم ...(I entered the world of music due to interest and circumstances) 
+همه کارای موزیک خود را خودم تنهایی در استودیو خانگی خودم مسیازم ...  (I only make all my music in my home studio ) 
+سال 1385 شروع به نوشتن شعر و سال 1389 به موزیک برا خودم شروع کردم (•Since 2016, I started writing poetry and 2019 music demos for myself.) 
+و از سال 1395 به صورت رسمی فعالیت کردم(And I have been working officially since 2015) 
+ممنون از همه ای همایت کننده های اشنا یا غریبه مخلص همتون هستم و مدیون شما هستم پیشرفت الانمو (Thank you to all the supporters, acquaintances or strangers, I am sincere and I owe you my progress)   
